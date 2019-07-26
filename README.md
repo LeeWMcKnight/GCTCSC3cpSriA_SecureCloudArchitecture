@@ -1,0 +1,1 @@
+# GCTCSC3cpSriA_SecureCloudArchitecture
